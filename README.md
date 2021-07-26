@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @sandeepdhamala
+- 👀 I’m interested in video editing , web page designing ,audio editing ,logo and grphic and animation too...
+- 🌱 I’m currently learning computer engneering ,and mechnical engneeing ...
+- 💞️ I’m looking to collaborate on a small and big deal withy any company ...
+- 📫 How to reach me . you can reach me in my personal webpage. ...https://sites.google.com/view/sandeepdhamala/home?authuser=0
+iam the new one in github . so give me one chance . 
+<!--- if anything is going wrong then 100 % cashback .
+sandeepdhamala/sandeepdhamala is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes
